@@ -17,4 +17,3 @@
 本平台免费开放，不设登录门槛，每日发布30+部新片。支持用户收藏、评论和推荐，提升互动性。如果你正在寻找一个既稳定又内容丰富的日本AV资源站，请将本站加入书签，我们将持续带来惊喜。
 
 <span style="display:none;">[Canonical link]( https://github.com/ribenaaa1111/402066 ）</span>
-02066
